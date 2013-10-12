@@ -1,4 +1,4 @@
 Lumia-Foto-Libros-
 ==================
 
-Emprendimiento de Fotografía personalizado.
+Emprendimiento de Fotografía personalizado. Belén.
